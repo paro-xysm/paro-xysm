@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @paro-xysm
+- 👀 I have No interests
+- 🌱 I’m currently learning computer science a level, python, rust :)
+- 💞️ Don't work with me
+- 📫 How to reach me parox?#9297
